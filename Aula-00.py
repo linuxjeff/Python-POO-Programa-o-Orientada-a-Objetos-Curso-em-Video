@@ -1,0 +1,1 @@
+# Deu boas vindas e passou motivos e o porque devo fazer o curso.
